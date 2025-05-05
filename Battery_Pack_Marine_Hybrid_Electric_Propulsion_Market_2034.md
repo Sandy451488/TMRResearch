@@ -1,6 +1,6 @@
 # Battery Pack for Marine Hybrid & Full Electric Propulsion Market Outlook 2034: Electrifying the Seas with Sustainable Power Solutions
 
-The global {**Battery Pack for Marine Hybrid & Full Electric Propulsion Market**}(https://www.transparencymarketresearch.com/battery-pack-market-for-hybrid-and-full-electric-marine-propulsion.html) was valued at **US$ 977.6 million in 2023** and is forecast to grow at a **CAGR of 8.7% from 2024 to 2034**, reaching a value of approximately **US$ 2.4 billion by 2034**. This promising growth trajectory is fueled by the increasing electrification of the marine sector and stringent global emission regulations.
+The global [**Battery Pack for Marine Hybrid & Full Electric Propulsion Market**](https://www.transparencymarketresearch.com/battery-pack-market-for-hybrid-and-full-electric-marine-propulsion.html) was valued at **US$ 977.6 million in 2023** and is forecast to grow at a **CAGR of 8.7% from 2024 to 2034**, reaching a value of approximately **US$ 2.4 billion by 2034**. This promising growth trajectory is fueled by the increasing electrification of the marine sector and stringent global emission regulations.
 
 [**Request a Sample Report Copy**](https://www.transparencymarketresearch.com/sample/sample.php?flag=S&rep_id=76884)
 
