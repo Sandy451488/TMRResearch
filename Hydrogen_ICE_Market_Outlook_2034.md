@@ -9,9 +9,10 @@
 
 ## Introduction
 
-The global push for decarbonization is fueling the rise of hydrogen as a clean energy vector, with hydrogen internal combustion engines (HICEs) at the forefront of this revolution. With a market valued at **US$ 18.2 Bn in 2023** and projected to reach **US$ 51.3 Bn by 2034**, growing at a **CAGR of 9.9%**, the hydrogen internal combustion engine market is entering a transformative phase. HICEs offer an effective pathway to reduce emissions in sectors where battery electric vehicles may not be feasible, especially in heavy-duty transportation.
+The global push for decarbonization is fueling the rise of hydrogen as a clean energy vector, with hydrogen internal combustion engines (HICEs) at the forefront of this revolution. With a market valued at **US$ 18.2 Bn in 2023** and projected to reach **US$ 51.3 Bn by 2034**, growing at a **CAGR of 9.9%**, the [hydrogen internal combustion engine market](https://www.transparencymarketresearch.com/hydrogen-internal-combustion-engine-market.html) is entering a transformative phase. HICEs offer an effective pathway to reduce emissions in sectors where battery electric vehicles may not be feasible, especially in heavy-duty transportation.
 
----
+[**Request a Sample Report Copy**](https://www.transparencymarketresearch.com/sample/sample.php?flag=S&rep_id=86135)
+
 
 ## Analyst Viewpoint
 
