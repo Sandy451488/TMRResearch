@@ -5,7 +5,7 @@ The global [**rotogravure printing machine market**](https://www.transparencymar
 
 As automation transforms traditional printing techniques and global brands increasingly prioritize packaging aesthetics and performance, rotogravure printing machines are positioned as indispensable assets in the packaging and publishing industries.
 
-{**Request a Sample Report Copy**](https://www.transparencymarketresearch.com/sample/sample.php?flag=S&rep_id=36734)
+[**Request a Sample Report Copy**](https://www.transparencymarketresearch.com/sample/sample.php?flag=S&rep_id=36734)
 
 ## Understanding Rotogravure Printing Machines
 
